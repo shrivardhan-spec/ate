@@ -6,6 +6,7 @@ grass
 humans
 aliens
 water
-all natural resources need to be conserved. ..
+Every natural resource need to be conserved. ..
                                            . ( .
                                             ..
+Nature provides for our needs not for our greeds  -M.K.Gandhiji.
